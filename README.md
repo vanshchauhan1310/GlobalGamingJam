@@ -1,1 +1,1 @@
-# GlobalGamingJam
+# Global-Gaming-Jam
